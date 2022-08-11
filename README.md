@@ -1,2 +1,0 @@
-# MEKANIZEMPXP
-GG
